@@ -1,4 +1,4 @@
-# ✅ **Licencia recomendada: CC BY-NC-ND 4.0**
+# ✅ **CC BY-NC-ND 4.0**
 
 Esta licencia:
 
